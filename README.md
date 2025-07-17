@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Junior Dev , Leaning in RSU
 ---------------------------
 
-* 🌍  I'm based in Thailand, reungsit
+* 🌍  I'm based in Thailand, rungsit
 * ✉️  You can contact me at [walkerbilly2546@gmail.com](mailto:walkerbilly2546@gmail.com)
 * 🧠  I'm learning everythings important
 * ⚡  Can Callme Billy
